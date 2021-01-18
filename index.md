@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Tobias's website
 
-I'm glad you are here. I plan to talk about ...
+Here you will encounter exciting news!
